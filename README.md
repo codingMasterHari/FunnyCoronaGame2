@@ -1,0 +1,1 @@
+# FunnyCoronaGame2
